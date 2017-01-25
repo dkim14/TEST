@@ -1,2 +1,0 @@
-Dowan Kim
-NC DINOS
